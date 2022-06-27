@@ -9,6 +9,9 @@ https://docs.google.com/document/d/1YMAbPz-LLk8mJG4c1DRsJkds9iVUOz4FpceHOX84xFQ/
 Автоматы: 
 https://docs.google.com/document/d/1c5e2mHC20N7t4t1xvt8clICOKXtXlIIqRJKHfJcUivs/edit?usp=sharing
 
+Философия: 
+https://docs.google.com/document/d/1MeaoUD52FVY-EC7LKj7UHl7QnD7pB4HEmHM1mQ9AZdo/edit?usp=sharing
+
 Больше билетов, курсач и решения залью после сессиии
 
 Вы можете продолжать редактировать файл, добавлять туда решения. Если возникли проблемы с доступом, напишите vk.com/yanaglad12
